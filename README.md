@@ -1,1 +1,0 @@
-# Growfinix-Tech
